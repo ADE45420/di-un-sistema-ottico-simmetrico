@@ -1,0 +1,1 @@
+# di-un-sistema-ottico-simmetrico
